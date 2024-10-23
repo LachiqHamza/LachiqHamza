@@ -2,7 +2,7 @@
 - 👀 I’m interested in informatiques and telecome
 - 🌱 I’m currently learning to become engenier 
 - 💞️ I’m looking to collaborate in projects and team work
-- 📫 How to reach me hamzalachiq2@gmail.com
+- 📫 How to reach me lachiq.hamza37@gmail.com
 - ⚡ Fun fact: i can adapt very quicly what ever the platform, language or envirement 
 here are my last certification list
 https://coursera.org/verify/K3W9ZZWJAYTF
